@@ -6,4 +6,5 @@
 ⠀⭑⠀⠀   ⠀ᛝ⠀⠀⠀🌼⠀⠀⠀⠀⠀stay kind, stay a friend, stay yourself!
 
 
-⠀
+⠀<img width="2048" height="1741" alt="image" src="https://github.com/user-attachments/assets/5ee47d1d-09e4-4d25-bcd3-99a52981c60f" />
+
