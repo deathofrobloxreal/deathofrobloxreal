@@ -1,1 +1,7 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀core sp5 594 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀core sp5 594 
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀friend requests are off in every social media i have ever, im not looking 4 them either
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀slow replies 24/7 especially in social media again. i also do things alone often, pls dont take me declining hangouts to ur heart
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
