@@ -1,4 +1,4 @@
-core sp5 594 - sp5 enneahuman design from matrix / so3sx8 (?) lover on tiktok
+5(w4)94 sp/so - sp5 enneahuman design from matrix / so3sx8 (?) lover on tiktok
 
 friend requests are off in every social media i have ever, im not looking 4 them either
 
